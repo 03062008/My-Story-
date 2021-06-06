@@ -1,2 +1,2 @@
 Once upon a time a man went to buy coconuts in the city. He came upon a market where he spotted one.
-He asked the vendor "How much is one coconut".
+He asked the vendor "How much is one coconut". The vendor said "3 paises", but the man retaliated and exclaimed "3 paise is too much".
