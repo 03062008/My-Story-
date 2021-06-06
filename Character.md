@@ -1,2 +1,3 @@
 Miser
 Shopkeepers
+Villagers
